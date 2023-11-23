@@ -1,1 +1,2 @@
+O trigo é a gramínea cultivada em todo o mundo. Mundialmente, é a segunda maior cultura de cereais, sendo a primeira o milho e a terceira o arroz. O grão de trigo é um alimento básico usado para fazer farinha e, com esta, o pão, na alimentação dos animais domésticos e como ingrediente na fabricação de cerveja. Além de ser uma importante fonte de energia para o organismo, por ser um carboidrato, o trigo é um alimento rico em vitaminas e minerais essenciais para vida humana, como as vitaminas do complexo B, o potássio, o fósforo e o magnésio.
 # 8-castelo
